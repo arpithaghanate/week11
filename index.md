@@ -1,2 +1,2 @@
-3 thins to do to help with wellbeing:
+# 3 things to do to help with wellbeing:
 Eat, Sleep, Laugh
